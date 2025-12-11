@@ -1,0 +1,123 @@
+# kZm – DOSHABURI (Remix)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+三井住友
+口座8桁 Hell yeah
+即ぶち込まれな人生
+留置所じゃなくて
+絶好調でいこぜ
+安売りのラベル貼られた
+俺らは流行りのラッパー
+でもアリエクにない
+純度1000%の VVS
+Like a ドルフィン
+濡れてる Drip もがなくて
+全身身体の隅まで Wetty
+アートがどうとか言っても
+実際お金はやっぱり大事
+振ってる毎日弁髪
+Jumadiba kZm の連打
+予報する俺らのセンサー
+雨が降りだす
+気圧が地に落ちてく
+お前らの頭信号乱れる
+I make u wet
+土砂降りのような
+YEN Won Dollers
+コンビニ行ってパクんない傘
+Wet
+I make u wet
+土砂降りのような
+YEN Won Dollar
+実家の空に降らす For ma mama
+Wet
+I mak u wet
+JU ride the Husky stu
+Her pistol go 街を救う Skrrr
+ワンツーツィで餃子食べて
+立ち止まって考える
+無理今日寝ないでやる
+Lie si oe Neteyamur
+親戚 名前知らず
+あの世行く時のみ出会う
+流れ落ちる Like パラサイト
+ほら見てみ土砂降り Ah
+帰り際玄関で見た火球散る
+ママと2人 Ah
+覚えてる初ワールドカップは
+Fevernova 2002
+チンしてる記憶レンジ
+Supernova so wetty
+あぁ ここから
+限界ないから突破しな
+降らしたいね For ma mama
+怪しい雲だあそこから
+傘を用意 For ma mama
+途絶えさせない音沙汰
+お相撲みたく音鳴らす
+MADIBA kZm お New パターン
+ちょっぴりこっちに寄りすぎて
+あぶねえ
+俺とあなたもスレスレで
+そんなに違いわねえから Set up
+Far east からの Letter
+曲げすぎカーブのベッカム
+本田が選んだ CSKA
+回り道するも Yes だ
+土砂降りのような
+YEN Won Dollers
+コンビニ行ってパクんない傘
+Wet
+I make u wet
+土砂降りのような
+YEN Won Dollers
+実家の空に降らす For ma mama
+Wet
+I mak u wet
+頭に来たから 傘もなく黙って
+バックパックだけで 飛び出す
+ムカついてるからなる 大胆
+爆弾 低音圧 内臓 圧迫
+My verse カロリー過多
+今更 俺のヤバさが分かった？
+雑魚 ストマックと
+ショボい鼓膜 じゃできない消化
+濃くなるアスファルトの Color と
+グレーの空は 俺が来たから
+昔からしたら 高値のハナでも
+今じゃまとめて
+落としちゃうワンバース
+Club のバーカンや
+Stone Island ガンショプじゃ
+I'm like a ワイパー
+麻神 的確な Sniper
+通り雨で終わるわけがないじゃん
+地に足付け履くスタッドレス
+Poker face で
+こなす Big deal
+浮かれてる  Bitch と違う
+しない ぬかるみで Slip Slip Slip
+雲の上で 寝っ転がったら
+Airplane mode で Trip Trip Trip
+全身 GORE-TEX スキーマスクして
+歩いてもバレてる Who I am
+ralph
+ドロップする One shout
+飛沫の様に
+沸き立つこのフロア Yeah
+貧乏から Yeah
+なる Baller に Yeah
+You know I'ma 勝ち確の Closer
+土砂降りのような
+YEN Won Dollers
+コンビニ行ってパクんない傘
+Wet
+I make u wet
+土砂降りのような
+YEN Won Dollers
+実家の空に降らす For ma mama
+Wet
+I mak u wet
+```
